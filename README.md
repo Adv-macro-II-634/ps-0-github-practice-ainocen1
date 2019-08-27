@@ -6,6 +6,3 @@ further edits
 
 
 bla bla
-
-
-bla bla bla
